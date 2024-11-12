@@ -1,0 +1,2 @@
+# NTGSTCTechnicalTaskMobileDeveloper-
+Task for NTGSTCTechnicalTaskMobileDeveloper‏
